@@ -1,2 +1,2 @@
-20252416
-Ji hyeonseo
+20252416 Ji hyeonseo
+Kookmin Univ. SW
